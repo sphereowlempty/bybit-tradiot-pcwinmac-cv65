@@ -1,4 +1,4 @@
-# 
+# Profissional bybit trading bot predefinições for Mac OS | Premium bybit trading bot predefinições for PC Windows. Featuring pools de liquidez DEX and API de exchange descentralizada — optimized for maximum performance.
 
 
 
